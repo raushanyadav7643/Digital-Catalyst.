@@ -1,1 +1,1 @@
-# Digital-Catalyst.
+# Digital-Catalyst
